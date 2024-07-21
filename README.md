@@ -1,4 +1,4 @@
-# comparison-of-theories
+# History H
 A comparison of theories from Nationalism to Multiversalism.
 
 ### Nationalism N
